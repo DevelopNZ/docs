@@ -2,4 +2,4 @@
 
 - Be excellent to each other
 
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Volkseigener_Betrieb_VEB_logo.svg/800px-Volkseigener_Betrieb_VEB_logo.svg.png)
+![](https://i.etsystatic.com/18338096/r/il/d19ee4/2646390606/il_fullxfull.2646390606_k4la.jpg)
