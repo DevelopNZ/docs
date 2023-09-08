@@ -2,4 +2,4 @@
 
 - Be excellent to each other
 
-![](https://i.imgur.com/PTYmscH.png)
+![](puppet.jpg)
