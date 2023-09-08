@@ -2,4 +2,4 @@
 
 - Be excellent to each other
 
-![Sus Puppet](./puppet.jpg)
+![Sus Puppet](https://i.imgflip.com/7yerlw.jpg)
