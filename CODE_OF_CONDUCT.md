@@ -2,4 +2,4 @@
 
 - Be excellent to each other
 
-![](puppet.jpg)
+![Sus Puppet](./puppet.jpg)
